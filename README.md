@@ -1,2 +1,0 @@
-# thejerrypage.github.io
-jerry
